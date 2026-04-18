@@ -5,12 +5,12 @@ Hello, hello !
 My online presence is Koshkatzi!
 You may refer to me as Kosh, Koshi, Katz, 
 Or Shishi                
-                                        
+<p align="center">
 Welcome to my Github !!
 Everything here is not confirmed, and will
 be changed over time          
 (if I dont forget)           
-                                        
+<p align="center">                                
 My pronouns change and shift depending on 
 the character I'm using         
 so.. Use whatever you want
