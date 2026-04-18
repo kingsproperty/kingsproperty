@@ -7,11 +7,12 @@
 <img width="20" height="20" alt="messege bubble" src="https://github.com/user-attachments/assets/b2b0c24f-0346-4029-b639-feb228e9adf6" />
   ⠀  ˳⠀⠀⠀koshkatzi⠀⠀ノ⠀⠀5teen .⠀ 𖹭
  </p> 
-<p align="center">
+<p align="center
   . . .　<𝟑⠀⠀⠀⠀†　⠀𓏼⠀　i'm so cringe,,𓈒⠀
-  </p>
+ <img width="20" height="20" alt="rose" src="https://github.com/user-attachments/assets/2f88e2a7-12a8-4abd-96fe-41053483e7d3" />
+ </p>
  <p align="center">
-  ✦︎ㅤㅤ<b>usually offtab</b>⠀⠀⏝⠀⠀w2int　⠀゛ ⸝⸝ .ᐟ ⋆ </p>
+  ✦︎ㅤㅤ<b>usually offtab</b>⠀⠀⏝⠀⠀<u>w2int</u>　⠀゛ ⸝⸝ .ᐟ ⋆ </p>
 <p align="center">
 ps: im cringe as FUCK
 
