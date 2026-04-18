@@ -8,6 +8,7 @@
   ⠀  ˳⠀⠀⠀koshkatzi⠀⠀ノ⠀⠀5teen .⠀ 𖹭
  </p> 
 <p align="center>
+ 
   . . .　<𝟑⠀⠀⠀⠀†　⠀𓏼⠀　i'm so cringe,,𓈒⠀
  
 <img width="20" height="20" alt="rose" src="https://github.com/user-attachments/assets/83d86bf8-bdbb-4f4f-bfd1-1d935e4ebc42" />
