@@ -23,6 +23,6 @@ it is impossible to misgender me
 </p>
 
 <img width="150" height="20" alt="homo behavior" src="https://github.com/user-attachments/assets/369bd40f-7d44-4d76-9df7-20c315f9b5db" />
-💚; I am actively scanning the area, spectating people!
-💛; Likely off-tab, just give me a whisp if you wanna int!
+💚; I am actively scanning the area, spectating people!<br>
+💛; Likely off-tab, just give me a whisp if you wanna int!<br>
 ❤️; Most likely AFK/Not at my desktop!
