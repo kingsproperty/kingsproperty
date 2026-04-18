@@ -12,7 +12,7 @@
    <img width="20" height="20" alt="rose" src="https://github.com/user-attachments/assets/5520b79c-9c21-4b5c-a0a4-2c08a30adcad" />
   </p>
  <p align="center">
-  ✦︎ㅤㅤ<b>usually offtab</b>⠀⠀⏝⠀⠀<u>w2int</u>　⠀゛ ⸝⸝ .ᐟ ⋆ </p>
+  ✦︎ㅤㅤ<b>usually offtab</b>⠀⠀⏝⠀⠀<u>__w2int__</u>　⠀゛ ⸝⸝ .ᐟ ⋆ </p>
 <p align="center">
 ps: im cringe as FUCK
 
