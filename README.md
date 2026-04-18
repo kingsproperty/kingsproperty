@@ -3,14 +3,13 @@
 </p>
 <p align="center">
 Hello, hello !
-  My online presence is Koshkatzi!
-  You may refer to me as Kosh, Koshi, Katz, 
-  Or Shishi                
+<br>  My online presence is Koshkatzi!
+ <br> You may refer to me as Kosh, Koshi, Katz, or Shishi                
 <p align="center">
 Welcome to my Github !!
-  Everything here is not confirmed, and will
-  be changed over time          
-  (if I dont forget)           
+  <br> Everything here is not confirmed, and will
+  <br> be changed over time          
+  <br> (if I dont forget)           
 <p align="center">                                
 My pronouns change and shift depending on 
 the character I'm using         
