@@ -1,19 +1,11 @@
 <p align="center">
+ <img width="80" height="15" alt="image" src="https://github.com/user-attachments/assets/f1c930f7-8051-4392-a93f-095dbe174602" />
+
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/f29b244d-77b2-4e94-b6be-45dffa10304d" />
 </p>
 <p align="center">
-Hello, hello !
-<br>  My online presence is Koshkatzi!
- <br> You may refer to me as Kosh, Koshi, Katz, or Shishi                
-<p align="center">
-Welcome to my Github !!
-  <br> Everything here is not confirmed, and will
-  <br> be changed over time          
-  <br> (if I dont forget)           
-<p align="center">                                
-My pronouns change and shift depending on 
-the character I'm using         
-<br> so.. Use whatever you want
-</p>
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/119654f3-0982-4415-911a-446b087e189d" /> ⠀　˳⠀⠀⠀koshkatzi⠀⠀ノ⠀⠀5teen .⠀ ᛝ
+<br>. . . 　<𝟑⠀⠀⠀⠀♰　⠀𓏼⠀　i'm so cringe,,𓈒 ⠀⠀⠀
+　⠀ usually offtab⠀⠀⏝⠀⠀w2int　⠀゛ ⸝⸝ .ᐟ ⋆
 <p align="center">
 ps: im cringe as FUCK
