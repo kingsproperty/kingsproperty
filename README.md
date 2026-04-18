@@ -9,7 +9,7 @@
 <p align="center">
   . . .　<𝟑⠀⠀⠀⠀†　⠀𓏼⠀　i'm so cringe,,𓈒 </p>⠀
    <p align="center">
-<br> ✦︎   usually offtab⠀⠀⏝⠀⠀w2int　⠀゛ ⸝⸝ .ᐟ ⋆ </p>
+ ✦︎   usually offtab⠀⠀⏝⠀⠀w2int　⠀゛ ⸝⸝ .ᐟ ⋆ </p>
 <p align="center">
 ps: im cringe as FUCK
 
