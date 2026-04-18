@@ -1,5 +1,6 @@
+<p align="center">
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/f29b244d-77b2-4e94-b6be-45dffa10304d" />
-
+</p>
 <p align="center">
 Hello, hello !             
 My online presence is Koshkatzi!
