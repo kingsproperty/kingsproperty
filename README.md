@@ -4,8 +4,7 @@
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/f29b244d-77b2-4e94-b6be-45dffa10304d" />
 </p>
  <div class="container">
-  <p align="center">
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/119654f3-0982-4415-911a-446b087e189d"/>
+ <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/119654f3-0982-4415-911a-446b087e189d"/>
  <p align="center"> ⠀  ˳⠀⠀⠀koshkatzi⠀⠀ノ⠀⠀5teen .⠀ 𖹭</p> </div>
 <p align="center">
 <br>  . . .　<𝟑⠀⠀⠀⠀†　⠀𓏼⠀　i'm so cringe,,𓈒 ⠀⠀⠀
