@@ -18,6 +18,6 @@ ps: im cringe as FUCK
 
 <p align="center">
 <img width="1198" height="357" alt="image" src="https://github.com/user-attachments/assets/ae18c1ce-72d3-4998-9b70-1b98870617a8" />
-
+</p>
 
 <img width="80" height="15" alt="image" src="https://github.com/user-attachments/assets/f1c930f7-8051-4392-a93f-095dbe174602" />
