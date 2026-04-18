@@ -4,7 +4,7 @@
 
 </p>
  <p align="center"> 
-<img width="20" height="20" alt="glass heart" src="https://github.com/user-attachments/assets/cf629981-f2e9-4c0e-8240-f7472313ea7d" />
+<img width="20" height="20" alt="messege bubble" src="https://github.com/user-attachments/assets/b2b0c24f-0346-4029-b639-feb228e9adf6" />
   ⠀  ˳⠀⠀⠀koshkatzi⠀⠀ノ⠀⠀5teen .⠀ 𖹭
  </p> 
 <p align="center">
@@ -20,4 +20,5 @@ ps: im cringe as FUCK
 <img width="1198" height="357" alt="image" src="https://github.com/user-attachments/assets/ae18c1ce-72d3-4998-9b70-1b98870617a8" />
 </p>
 
-<img width="80" height="15" alt="image" src="https://github.com/user-attachments/assets/f1c930f7-8051-4392-a93f-095dbe174602" />
+<img width="150" height="20" alt="homo behavior" src="https://github.com/user-attachments/assets/369bd40f-7d44-4d76-9df7-20c315f9b5db" />
+
