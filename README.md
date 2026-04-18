@@ -7,9 +7,10 @@
 <img width="20" height="20" alt="messege bubble" src="https://github.com/user-attachments/assets/b2b0c24f-0346-4029-b639-feb228e9adf6" />
   ⠀  ˳⠀⠀⠀koshkatzi⠀⠀ノ⠀⠀5teen .⠀ 𖹭
  </p> 
-<p align="center>
- 
-  . . .　<𝟑⠀⠀⠀⠀†　⠀𓏼⠀　i'm so cringe,,𓈒
+<p align="center">
+  . . .　<𝟑⠀⠀⠀⠀†　⠀𓏼⠀　i'm so cringe,,𓈒ㅤㅤ
+   <img width="20" height="20" alt="rose" src="https://github.com/user-attachments/assets/5520b79c-9c21-4b5c-a0a4-2c08a30adcad" />
+  </p>
  <p align="center">
   ✦︎ㅤㅤ<b>usually offtab</b>⠀⠀⏝⠀⠀<u>w2int</u>　⠀゛ ⸝⸝ .ᐟ ⋆ </p>
 <p align="center">
