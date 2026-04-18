@@ -9,7 +9,7 @@
  </p> 
 <p align="center
   . . .　<𝟑⠀⠀⠀⠀†　⠀𓏼⠀　i'm so cringe,,𓈒⠀
- <img width="20" height="20" alt="rose" src="https://github.com/user-attachments/assets/2f88e2a7-12a8-4abd-96fe-41053483e7d3" />
+<img width="20" height="20" alt="rose" src="https://github.com/user-attachments/assets/2f88e2a7-12a8-4abd-96fe-41053483e7d3" />
  </p>
  <p align="center">
   ✦︎ㅤㅤ<b>usually offtab</b>⠀⠀⏝⠀⠀<u>w2int</u>　⠀゛ ⸝⸝ .ᐟ ⋆ </p>
