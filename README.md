@@ -1,6 +1,8 @@
 <p align="center">
  <img width="80" height="15" alt="image" src="https://github.com/user-attachments/assets/f1c930f7-8051-4392-a93f-095dbe174602" />
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/f29b244d-77b2-4e94-b6be-45dffa10304d" />
+ <img width="1196" height="132" alt="image" src="https://github.com/user-attachments/assets/2040f956-f9ba-43ff-a918-4c7c62e010d2" />
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/7c209419-3c9a-44d7-a285-d805083a256e" />
+
 </p>
  <p align="center"> 
 <img width="20" height="20" alt="glass heart" src="https://github.com/user-attachments/assets/cf629981-f2e9-4c0e-8240-f7472313ea7d" />
@@ -16,5 +18,6 @@ ps: im cringe as FUCK
 
 
 <p align="center">
-<img width="80" height="80" alt="image" src="https://github.com/user-attachments/assets/f245a4d4-dd3e-4b68-b333-3bb139f14d0a" />
+<img width="1198" height="357" alt="image" src="https://github.com/user-attachments/assets/ae18c1ce-72d3-4998-9b70-1b98870617a8" />
+
 
