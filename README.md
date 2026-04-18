@@ -13,5 +13,7 @@ Welcome to my Github !!
 <p align="center">                                
 My pronouns change and shift depending on 
 the character I'm using         
-so.. Use whatever you want
+<br> so.. Use whatever you want
 </p>
+<p align="center">
+ps: im cringe as FUCK
