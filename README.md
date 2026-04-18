@@ -7,7 +7,6 @@
    <p align="center"> ⠀  ˳⠀⠀⠀koshkatzi⠀⠀ノ⠀⠀5teen .⠀ 𖹭</p> 
 <p align="center">
   . . .　<𝟑⠀⠀⠀⠀†　⠀𓏼⠀　i'm so cringe,,𓈒 ⠀
-   <p align="center">
 <br> ✦︎   usually offtab⠀⠀⏝⠀⠀w2int　⠀゛ ⸝⸝ .ᐟ ⋆
 <p align="center">
 ps: im cringe as FUCK
