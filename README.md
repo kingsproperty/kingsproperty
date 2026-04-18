@@ -14,7 +14,8 @@
  <p align="center">
   ✦︎ㅤㅤ<b>usually offtab</b>⠀⠀⏝⠀⠀<u>__w2int__</u>　⠀゛ ⸝⸝ .ᐟ ⋆ </p>
 <p align="center">
-ps: im cringe as FUCK
+ps: pronouns change depending on the oc i wear <br>
+it is impossible to misgender me
 
 
 <p align="center">
