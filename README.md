@@ -15,4 +15,6 @@
 ps: im cringe as FUCK
 
 
+<p align="center">
+<img width="80" height="80" alt="image" src="https://github.com/user-attachments/assets/f245a4d4-dd3e-4b68-b333-3bb139f14d0a" />
 
