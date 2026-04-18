@@ -6,7 +6,7 @@
    <img width="20" height="20" alt="glass heart" src="https://github.com/user-attachments/assets/cf629981-f2e9-4c0e-8240-f7472313ea7d" />
    <p align="center"> ⠀  ˳⠀⠀⠀koshkatzi⠀⠀ノ⠀⠀5teen .⠀ 𖹭</p> 
 <p align="center">
-  . . .　<𝟑⠀⠀⠀⠀†　⠀𓏼⠀　i'm so cringe,,𓈒 ⠀⠀⠀
+  . . .　<𝟑⠀⠀⠀⠀†　⠀𓏼⠀　i'm so cringe,,𓈒 ⠀⠀</p>⠀
 <br> ✦︎   usually offtab⠀⠀⏝⠀⠀w2int　⠀゛ ⸝⸝ .ᐟ ⋆
 <p align="center">
 ps: im cringe as FUCK
