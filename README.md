@@ -5,8 +5,8 @@
 </p>
  <p align="center"> 
 <img width="20" height="20" alt="messege bubble" src="https://github.com/user-attachments/assets/b2b0c24f-0346-4029-b639-feb228e9adf6" />
-  ⠀  ˳⠀⠀⠀koshkatzi⠀⠀ノ⠀⠀5teen .⠀ 𖹭 <img width="30" height="22" alt="image" src="https://github.com/user-attachments/assets/abf6f333-d6be-4840-8888-46100181dbff" />
-</p> 
+  ⠀  ˳⠀⠀⠀koshkatzi⠀⠀ノ⠀⠀5teen .⠀ 𖹭 
+ <img width="30" height="22" alt="image" src="https://github.com/user-attachments/assets/abf6f333-d6be-4840-8888-46100181dbff" /></p> 
 <p align="center">
   . . .　<𝟑⠀⠀⠀⠀†　⠀𓏼⠀　i'm so cringe,,𓈒ㅤㅤ
    <img width="20" height="20" alt="rose" src="https://github.com/user-attachments/assets/5520b79c-9c21-4b5c-a0a4-2c08a30adcad" />
