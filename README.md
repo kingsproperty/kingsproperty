@@ -26,3 +26,12 @@ it is impossible to misgender me
 💚; I am actively scanning the area, spectating people!<br>
 💛; Likely off-tab, just give me a whisp if you wanna int!<br>
 ❤️; Most likely AFK/Not at my desktop!
+</p>
+
+<p align="center">
+<img width="1198" height="433" alt="image" src="https://github.com/user-attachments/assets/ac451bb2-a690-45b7-88dd-ef4ef5f2fe6b" />
+hi this is still a wip sorry :(
+
+
+
+
