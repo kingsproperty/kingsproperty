@@ -16,7 +16,7 @@
 <p align="center">
 ps: pronouns change depending on the oc i wear <br>
 it is impossible to misgender me
-
+</p>
 
 <p align="center">
 <img width="1198" height="357" alt="image" src="https://github.com/user-attachments/assets/ae18c1ce-72d3-4998-9b70-1b98870617a8" />
@@ -29,8 +29,24 @@ it is impossible to misgender me
 </p>
 
 <p align="center">
-<img width="1198" height="433" alt="image" src="https://github.com/user-attachments/assets/ac451bb2-a690-45b7-88dd-ef4ef5f2fe6b" />
-hi this is still a wip sorry :(
+<img width="1198" height="433" alt="image" src="https://github.com/user-attachments/assets/ac451bb2-a690-45b7-88dd-ef4ef5f2fe6b" /> </p>
+
+<h1 align="center">facts about me in ponytown !</h1> <br>
+<p align="center">
+════════════════════════════════════<br>
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　<br>
+︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹<br>
+✦ . i will always ALWAYS be the last to leave a cuddle pile/will never be the first to leave <br>
+✦ . i cosplay niche fandoms (AS NICHE AS POTION PUNCH 2) <br>
+✦ . if im nowhere to be found in my default spawn points, consider checking this area
+<img width="500" height="433" alt="image" src="https://github.com/user-attachments/assets/80eeccee-9d5a-4fd3-9e34-8ed33cd03135" />
+✦ . i love cuddles, how could you tell? <br>
+✦ . The skins you'll often find me as are;</br>
+<img width="667" height="229" alt="image" src="https://github.com/user-attachments/assets/fe4ba4ff-23dd-4c9f-81ce-48129b4a4d4a" />
+<img width="1198" height="357" alt="image" src="https://github.com/user-attachments/assets/0aaf3c5b-9d7b-46a7-9b74-c019bde5696d" />
+
+
+
 
 
 
