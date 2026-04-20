@@ -36,7 +36,7 @@ it is impossible to misgender me
 ✦ . if im nowhere to be found in my default spawn points, consider checking this area
 <img width="500" height="433" alt="image" src="https://github.com/user-attachments/assets/80eeccee-9d5a-4fd3-9e34-8ed33cd03135" />
 ✦ . i love cuddles, how could you tell? <br>
-✦ . The skins you'll often find me as are;</br>
+✦ . The skins you'll often, but not limited to, find me in are;</br>
 <img width="680" height="232" alt="image" src="https://github.com/user-attachments/assets/5c72ffad-7e2d-4f55-9400-80591143868b" />
 <img width="1198" height="357" alt="image" src="https://github.com/user-attachments/assets/0aaf3c5b-9d7b-46a7-9b74-c019bde5696d" />
 <img width="250" height="34" alt="image" src="https://github.com/user-attachments/assets/c14d9e80-aa0d-4385-a3cb-7d64058dda52" />
