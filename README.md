@@ -37,7 +37,7 @@ it is impossible to misgender me
 <img width="500" height="433" alt="image" src="https://github.com/user-attachments/assets/80eeccee-9d5a-4fd3-9e34-8ed33cd03135" />
 ✦ . i love cuddles, how could you tell? <br>
 ✦ . I'M SORRY IF IM NOT AS AFFECTIONATE SOMETIMESSS <br>
- IM SUPER FREAKING SHY 💔🥀 <br>
+✦ .IM SUPER FREAKING SHY 💔🥀 <br>
 ✦ . The skins you'll often, but not limited to, find me in are;</br>
 <img width="680" height="232" alt="image" src="https://github.com/user-attachments/assets/5c72ffad-7e2d-4f55-9400-80591143868b" />
 <img width="1198" height="357" alt="image" src="https://github.com/user-attachments/assets/0aaf3c5b-9d7b-46a7-9b74-c019bde5696d" />
