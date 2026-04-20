@@ -33,8 +33,6 @@ it is impossible to misgender me
 ════════════════════════════════════<br>
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　<br>
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹<br>
-✦ . i will always ALWAYS be the last to leave a cuddle pile/will never be the first to leave <br>
-✦ . i cosplay niche fandoms (AS NICHE AS POTION PUNCH 2) <br>
 ✦ . if im nowhere to be found in my default spawn points, consider checking this area
 <img width="500" height="433" alt="image" src="https://github.com/user-attachments/assets/80eeccee-9d5a-4fd3-9e34-8ed33cd03135" />
 ✦ . i love cuddles, how could you tell? <br>
