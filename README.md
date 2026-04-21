@@ -43,7 +43,7 @@ it is impossible to misgender me
 ✦ . The skins you'll often, but not limited to, find me in are;</br>
 <img width="680" height="232" alt="image" src="https://github.com/user-attachments/assets/5c72ffad-7e2d-4f55-9400-80591143868b" />
 <img width="1198" height="357" alt="image" src="https://github.com/user-attachments/assets/0aaf3c5b-9d7b-46a7-9b74-c019bde5696d" />
-<img width="250" height="34" alt="image" src="https://github.com/user-attachments/assets/c14d9e80-aa0d-4385-a3cb-7d64058dda52" />
+<img width="150" height="24" alt="image" src="https://github.com/user-attachments/assets/c14d9e80-aa0d-4385-a3cb-7d64058dda52" />
 </p>
 
 
