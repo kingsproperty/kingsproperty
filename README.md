@@ -34,7 +34,7 @@ it is impossible to misgender me
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　<br>
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹<br>
 ✦ . if im nowhere to be found in my default spawn points, consider checking this area
-<img width="500" height="433" alt="image" src="https://github.com/user-attachments/assets/80eeccee-9d5a-4fd3-9e34-8ed33cd03135" />
+<img width="250" height="211" alt="image" src="https://github.com/user-attachments/assets/80eeccee-9d5a-4fd3-9e34-8ed33cd03135" />
 ✦ . i love cuddles, how could you tell? <br>
 ✦ . I'M SORRY IF IM NOT AS AFFECTIONATE SOMETIMESSS <br>
 ✦ . IM SUPER FREAKING SHY 💔🥀 <br>
