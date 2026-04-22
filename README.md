@@ -12,7 +12,8 @@
    <img width="20" height="20" alt="rose" src="https://github.com/user-attachments/assets/5520b79c-9c21-4b5c-a0a4-2c08a30adcad" />
   </p>
  <p align="center">
-  ✦︎ㅤㅤ<b>usually offtab</b>⠀⠀⏝⠀⠀<u>__w2int__</u>　⠀゛ ⸝⸝ .ᐟ ⋆ <br>
+  ✦︎ㅤㅤ<b>usually offtab</b>⠀⠀⏝⠀⠀<u>__w2int__</u>　⠀゛ ⸝⸝ .ᐟ ⋆ <br></p>
+    <p align="center">
  <a href="https://propertyoftheking.atabook.org" hidden>sign ata!!</a>⠀⠀,⠀⠀<a href="https://pronouns.cc/@sleepyyy" hidden>pronouns.cc !</a>⠀⠀,⠀⠀<a href="https://padlet.com/notmeantfortheweak/idiot-be-a-more-convincing-avery-next-time-dihb0fe7wnoyw156" hidden>public postboard ! (requires password)</a>
 </p>
 <p align="center">
