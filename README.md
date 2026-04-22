@@ -12,10 +12,12 @@
    <img width="20" height="20" alt="rose" src="https://github.com/user-attachments/assets/5520b79c-9c21-4b5c-a0a4-2c08a30adcad" />
   </p>
  <p align="center">
-  ✦︎ㅤㅤ<b>usually offtab</b>⠀⠀⏝⠀⠀<u>__w2int__</u>　⠀゛ ⸝⸝ .ᐟ ⋆ </p>
+  ✦︎ㅤㅤ<b>usually offtab</b>⠀⠀⏝⠀⠀<u>__w2int__</u>　⠀゛ ⸝⸝ .ᐟ ⋆ <br>
+ <a href="https://propertyoftheking.atabook.org" hidden>sign ata!!</a>⠀⠀,⠀⠀<a href="https://pronouns.cc/@sleepyyy" hidden>pronouns.cc !</a>⠀⠀,⠀⠀<a href="https://padlet.com/notmeantfortheweak/idiot-be-a-more-convincing-avery-next-time-dihb0fe7wnoyw156" hidden>public postboard ! (requires password)</a>
+</p>
 <p align="center">
-ps: pronouns change depending on the oc i wear <br>
-it is impossible to misgender me
+** the name koshkatzi is an online alias <br>
+preferably you call me it when we are in-game, thanks !
 </p>
 
 <p align="center">
@@ -45,7 +47,7 @@ it is impossible to misgender me
 <img width="1198" height="357" alt="image" src="https://github.com/user-attachments/assets/0aaf3c5b-9d7b-46a7-9b74-c019bde5696d" />
 <img width="150" height="24" alt="image" src="https://github.com/user-attachments/assets/c14d9e80-aa0d-4385-a3cb-7d64058dda52" />
 </p>
-
+<h5>psst,, the password to the postboard is ' ?>wdaswadd '</h5>
 
 
 
