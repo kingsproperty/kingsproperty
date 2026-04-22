@@ -21,6 +21,11 @@
 ** the name koshkatzi is an online alias <br>
 preferably you call me it when we are in-game, thanks !
 </p>
+<p align="center">
+<img width="120" height="60" alt="tumblr_7ce41a7d7428671502a25d835b5de222_8eba65f9_250" src="https://github.com/user-attachments/assets/3d75784c-4e75-4fb9-b412-552bc96aad72" />ㅤㅤ⠀⏝⠀ㅤㅤ
+<img width="120" height="60" alt="tumblr_088f3b1204872b29877744a4ca4da930_fedc7154_250" src="https://github.com/user-attachments/assets/43a7912a-4a18-4863-b643-cefd97d93be1" />
+
+
 
 <p align="center">
 <img width="1198" height="357" alt="image" src="https://github.com/user-attachments/assets/ae18c1ce-72d3-4998-9b70-1b98870617a8" />
@@ -47,9 +52,7 @@ preferably you call me it when we are in-game, thanks !
 ✦ . The skins you'll often, but not limited to, find me in are;</br>
 <img width="680" height="232" alt="image" src="https://github.com/user-attachments/assets/5c72ffad-7e2d-4f55-9400-80591143868b" />
 <img width="1198" height="357" alt="image" src="https://github.com/user-attachments/assets/0aaf3c5b-9d7b-46a7-9b74-c019bde5696d" />
-<img width="150" height="24" alt="image" src="https://github.com/user-attachments/assets/c14d9e80-aa0d-4385-a3cb-7d64058dda52" />
-</p>
-<h5>psst,, the password to the postboard is ' ?>wdaswadd '</h5>
+<a href="https://maybethepassword.carrd.co" hidden><img width="50" height="51" alt="tumblr_118920af2d297882e0fd4a4420e0914d_8fecddbf_75" src="https://github.com/user-attachments/assets/6fca3566-a96d-4e21-b37f-72081ac75cc7" /></a>
 
 
 
