@@ -1,6 +1,7 @@
 <p align="center">
+ best viewed on light mode cuz im too lazy to make each png transparent
  <img width="1196" height="132" alt="image" src="https://github.com/user-attachments/assets/2040f956-f9ba-43ff-a918-4c7c62e010d2" />
-<img width="559" height="559" alt="image" src="https://github.com/user-attachments/assets/4d59e83f-c62a-48c8-9f17-815bbb0bc9d0" />
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/fa5b9752-9dc5-4808-b563-c0cd5c139e9e" />
 <img width="524" height="116" alt="image" src="https://github.com/user-attachments/assets/3c07b8e8-8e10-4e1e-93d0-764667de4fd5" />
 
 </p>
@@ -15,7 +16,7 @@
  <p align="center">
   ✦︎ㅤㅤ<b>usually offtab</b>⠀⠀⏝⠀⠀<u>__w2int__</u>　⠀゛ ⸝⸝ .ᐟ ⋆ <br></p>
     <p align="center">
- <a href="https://propertyoftheking.atabook.org" hidden>sign ata!!</a>⠀⠀,⠀⠀<a href="https://pronouns.cc/@sleepyyy" hidden>pronouns.cc !</a>⠀⠀,⠀⠀<a href="https://padlet.com/notmeantfortheweak/idiot-be-a-more-convincing-avery-next-time-dihb0fe7wnoyw156" hidden>public postboard ! (requires password)</a>
+ <a href="https://propertyoftheking.atabook.org" hidden>sign ata!!</a>⠀⠀,⠀⠀<a href="https://pronouns.cc/@sleepyyy" hidden>pronouns.cc !</a>⠀⠀,⠀⠀<a href="https://padlet.com/notmeantfortheweak/idiot-be-a-more-convincing-avery-next-time-dihb0fe7wnoyw156" hidden>public postboard !</a>
 </p>
 <p align="center">
 ** the name koshkatzi is an online alias <br>
