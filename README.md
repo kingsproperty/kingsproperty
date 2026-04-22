@@ -53,7 +53,7 @@ preferably you call me it when we are in-game, thanks !
 <img width="680" height="232" alt="image" src="https://github.com/user-attachments/assets/5c72ffad-7e2d-4f55-9400-80591143868b" />
 <img width="1198" height="357" alt="image" src="https://github.com/user-attachments/assets/0aaf3c5b-9d7b-46a7-9b74-c019bde5696d" />
 <a href="https://maybethepassword.carrd.co" hidden><img width="50" height="51" alt="tumblr_118920af2d297882e0fd4a4420e0914d_8fecddbf_75" src="https://github.com/user-attachments/assets/6fca3566-a96d-4e21-b37f-72081ac75cc7" /></a>
-
+<h5 align="center">TW: mild scopophobia</h5>
 
 
 
