@@ -45,12 +45,18 @@ preferably you call me it when we are in-game, thanks !
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹<br>
 ✦ . if im nowhere to be found in my default spawn points, consider checking this area
 <img width="250" height="211" alt="image" src="https://github.com/user-attachments/assets/80eeccee-9d5a-4fd3-9e34-8ed33cd03135" />
-✦ . i love cuddling, how could you tell? <br>
-✦ . I'M SORRY IF IM NOT AS AFFECTIONATE SOMETIMESSS <br>
-✦ . IM SUPER FREAKING SHY 💔🥀 <br>
-✦ . my humor can be offensive at times, i tend to tease and jokingly bully once we're close enough<br>
-✦ . please tell me if youre sensitive to stuff like that <3 <br>
-✦ . The skins you'll often, but not limited to, find me in are;</br>
+<p align="center">✦ . i love cuddling, how could you tell? </p>
+<p align="center">✦ . I'M SORRY IF IM NOT AS AFFECTIONATE SOMETIMESSS </p>
+<p align="center">✦ . IM SUPER FREAKING SHY 💔🥀 </p>
+<p align="center">✦ . my humor can be offensive at times, i tend to tease and jokingly bully once we're close enough</p>
+<p align="center">✦ . please tell me if youre sensitive to stuff like that <3</p>
+<p align="center">✦ . multishipper ! derking, slimeknight (to whom will argue should be slimespartan CUZ A SPARTAN IS WHAT DERLORD IS), </p>
+ <p align="center">ill even indulge in ur yume if u want me to ! </p>
+<p align="center">✦ . may or may not be a fictkin,, not sure,, kinda new to the term and the concept,,</p>
+<p align="center">✦ . im not very social, a good amount of the time, i use non-verbal/non-typing cues,,</p>
+ <p align="center">so sorry if they're hard to understand :( </p>
+<p align="center">✦ . The skins you'll often, but not limited to, find me in are;</p>
+<p align="center">
 <img width="680" height="232" alt="image" src="https://github.com/user-attachments/assets/5c72ffad-7e2d-4f55-9400-80591143868b" />
 <img width="1198" height="357" alt="image" src="https://github.com/user-attachments/assets/0aaf3c5b-9d7b-46a7-9b74-c019bde5696d" />
 <a href="https://maybethepassword.carrd.co" hidden><img width="50" height="51" alt="tumblr_118920af2d297882e0fd4a4420e0914d_8fecddbf_75" src="https://github.com/user-attachments/assets/6fca3566-a96d-4e21-b37f-72081ac75cc7" /></a>
