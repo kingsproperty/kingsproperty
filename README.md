@@ -2,8 +2,8 @@
  best viewed on light mode cuz im too lazy to make each png transparent
  <img width="1196" height="132" alt="image" src="https://github.com/user-attachments/assets/2040f956-f9ba-43ff-a918-4c7c62e010d2" />
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/fa5b9752-9dc5-4808-b563-c0cd5c139e9e" />
+ <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fkingsproperty"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fkingsproperty&label=those%20who%20turned%20left&labelColor=%238a0000&countColor=%23ffc524&style=plastic" /></a>
 <img width="524" height="116" alt="image" src="https://github.com/user-attachments/assets/3c07b8e8-8e10-4e1e-93d0-764667de4fd5" />
-<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fkingsproperty"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fkingsproperty&label=those%20who%20turned%20left&labelColor=%238a0000&countColor=%23ffc524&style=plastic" /></a>
 </p>
  <p align="center"> 
 <img width="20" height="20" alt="messege bubble" src="https://github.com/user-attachments/assets/b2b0c24f-0346-4029-b639-feb228e9adf6" />
