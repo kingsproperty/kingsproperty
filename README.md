@@ -54,7 +54,7 @@ preferably you call me it when we are in-game, thanks !
 <p align="center">✦ . ill even indulge in ur yume if u want me to ! </p>
 <p align="center">✦ . may or may not be a fictkin,, not sure,, kinda new to the term and the concept,,</p>
 <p align="center">✦ . im not very social, a good amount of the time, i use non-verbal/non-typing cues,,</p>
-<p align="center">✦ .so sorry if they're hard to understand :( </p>
+<p align="center">✦ . so sorry if they're hard to understand :( </p>
 <p align="center">✦ . The skins you'll often, but not limited to, find me in are;</p>
 <p align="center">
 <img width="680" height="232" alt="image" src="https://github.com/user-attachments/assets/5c72ffad-7e2d-4f55-9400-80591143868b" />
