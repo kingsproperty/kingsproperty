@@ -45,7 +45,7 @@ preferably you call me it when we are in-game, thanks !
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹<br>
 ✦ . if im nowhere to be found in my default spawn points, consider checking this area
 <img width="250" height="211" alt="image" src="https://github.com/user-attachments/assets/80eeccee-9d5a-4fd3-9e34-8ed33cd03135" />
-✦ . i love cuddles, how could you tell? <br>
+✦ . i love cuddling, how could you tell? <br>
 ✦ . I'M SORRY IF IM NOT AS AFFECTIONATE SOMETIMESSS <br>
 ✦ . IM SUPER FREAKING SHY 💔🥀 <br>
 ✦ . my humor can be offensive at times, i tend to tease and jokingly bully once we're close enough<br>
