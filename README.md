@@ -53,7 +53,7 @@ preferably you call me it when we are in-game, thanks !
 <p align="center">✦ . IM SUPER FREAKING SHY 💔🥀 </p>
 <p align="center">✦ . my humor can be offensive at times, i tend to tease and jokingly bully once we're close enough</p>
 <p align="center">✦ . please tell me if youre sensitive to stuff like that <3</p>
-<p align="center">✦ . multishipper ! derking, slimeknight (to whom will argue should be slimespartan CUZ A SPARTAN IS WHAT DERLORD IS), </p>
+<p align="center">✦ . multishipper ! derking, slimeknight (to whom i will argue should be slimespartan CUZ A SPARTAN IS WHAT DERLORD IS), </p>
 <p align="center">✦ . ill even indulge in ur yume if u want me to ! </p>
 <p align="center">✦ . may or may not be a fictkin,, not sure,, kinda new to the term and the concept,,</p>
 <p align="center">✦ . im not very social, a good amount of the time, i use non-verbal/non-typing cues,,</p>
