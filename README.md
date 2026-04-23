@@ -40,12 +40,15 @@ preferably you call me it when we are in-game, thanks !
 
 <p align="center">
 <img width="1198" height="433" alt="image" src="https://github.com/user-attachments/assets/ac451bb2-a690-45b7-88dd-ef4ef5f2fe6b" />
+ <p align="center">
+  <img width="150" height="20" alt="blinkiesCafe-cq" src="https://github.com/user-attachments/assets/56afd40d-9995-4df3-a7da-3f71ac6f291e" />
+<img width="150" height="20" alt="blinkiesCafe-98" src="https://github.com/user-attachments/assets/2a2520ee-6940-4af9-8c45-82b695a2316d" /> <br>
 ════════════════════════════════════<br>
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　<br>
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹<br>
 ✦ . if im nowhere to be found in my default spawn points, consider checking this area
 <img width="250" height="211" alt="image" src="https://github.com/user-attachments/assets/80eeccee-9d5a-4fd3-9e34-8ed33cd03135" />
-<p align="center">✦ . i love cuddling, how could you tell? </p>
+<p align="center"><img width="200" height="30" alt="blinkiesCafe-os" src="https://github.com/user-attachments/assets/bf2971bd-4a4e-4046-900f-f84f7581146f" /></p>
 <p align="center">✦ . I'M SORRY IF IM NOT AS AFFECTIONATE SOMETIMESSS </p>
 <p align="center">✦ . IM SUPER FREAKING SHY 💔🥀 </p>
 <p align="center">✦ . my humor can be offensive at times, i tend to tease and jokingly bully once we're close enough</p>
