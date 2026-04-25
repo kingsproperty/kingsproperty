@@ -7,7 +7,7 @@
 </p>
  <p align="center"> 
 <img width="20" height="20" alt="messege bubble" src="https://github.com/user-attachments/assets/b2b0c24f-0346-4029-b639-feb228e9adf6" />
-  ⠀  ˳⠀⠀⠀koshkatzi; kosh/katz/shishi⠀⠀ノ⠀⠀5teen .⠀ 𖹭
+  ⠀  ˳⠀⠀⠀koshkatzi , kosh/katz/shishi⠀⠀ノ⠀⠀5teen .⠀ 𖹭
  </p> 
 <p align="center">
   . . .　<𝟑⠀⠀⠀⠀†　⠀𓏼⠀　i'm so cringe,,𓈒ㅤㅤ
