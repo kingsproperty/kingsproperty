@@ -60,7 +60,7 @@ preferably you call me it when we are in-game, thanks !
 <p align="center">✦ . so sorry if they're hard to understand :( </p>
 <p align="center">✦ . The skins you'll often, but not limited to, find me in are;</p>
 <p align="center">
-<img width="781" height="519" alt="Screenshot 2026-05-07 140108" src="https://github.com/user-attachments/assets/2fe15283-aa06-4d9b-a86d-205ac3c687f0" />
+<img width="778" height="521" alt="image" src="https://github.com/user-attachments/assets/558da092-8ee9-483d-9166-f2d9250f647d" />
 <img width="1198" height="357" alt="image" src="https://github.com/user-attachments/assets/ae18c1ce-72d3-4998-9b70-1b98870617a8" />
 <a href="https://maybethepassword.carrd.co" hidden><img width="50" height="51" alt="tumblr_118920af2d297882e0fd4a4420e0914d_8fecddbf_75" src="https://github.com/user-attachments/assets/6fca3566-a96d-4e21-b37f-72081ac75cc7" /></a>
 <h5 align="center">TW: mild scopophobia</h5>
