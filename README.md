@@ -47,8 +47,8 @@ preferably you call me it when we are in-game, thanks !
 ════════════════════════════════════<br>
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　<br>
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹<br>
-✦ . if im nowhere to be found in my default spawn points, consider checking this area
-<img width="250" height="211" alt="image" src="https://github.com/user-attachments/assets/80eeccee-9d5a-4fd3-9e34-8ed33cd03135" />
+<p align="center">✦ . if im nowhere to be found in my default spawn points, consider checking this area</p>
+<p align="center"><img width="250" height="211" alt="image" src="https://github.com/user-attachments/assets/80eeccee-9d5a-4fd3-9e34-8ed33cd03135" /></p>
 <p align="center"><img width="200" height="30" alt="blinkiesCafe-os" src="https://github.com/user-attachments/assets/bf2971bd-4a4e-4046-900f-f84f7581146f" /></p>
 <p align="center">✦ . I'M SORRY IF IM NOT AS AFFECTIONATE SOMETIMESSS </p>
 <p align="center">✦ . IM SUPER FREAKING SHY 💔🥀 </p>
